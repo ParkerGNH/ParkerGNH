@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ParkerG
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning python and java script.
+- 💞️ I’m looking to collaborate on N/A. I like being independant.
+- 📫 How to reach me you can contact me VIA my company email. Email is private for now.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Beginner coder
